@@ -16,3 +16,11 @@ well the answer is simple you may find the files from websites some of the websi
 1. Fitgirl  (https://fitgirl-repacks.site)
 2. Dodi Repack (https://dodi-repacks.site/)
 these two are most common ones
+
+# Here comes the tresury
+(https://www.reddit.com/r/Piracy/wiki/megathread/games/)
+Above is a link for a megathread and it contains almost every game piracy source needed for beginner
+
+# Search engine for Piracy
+Rezi (https://rezi.one/). 
+In this just type name of game and it will find VERIFIED piracy websites for you so that you can download that game easily without any further research since both dodi and fitgirl dont contain all the games
